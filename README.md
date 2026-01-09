@@ -4,7 +4,7 @@
 
 ###
 
-<h2 align="left">Hii!!  I'm is Gabriely Barreto ✨</h2>
+<h2 align="left">Hii!!  I'm Gabriely Barreto ✨</h2>
 
 ###
 
